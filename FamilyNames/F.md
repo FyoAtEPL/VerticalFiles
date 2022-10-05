@@ -1,0 +1,95 @@
+# Family Files - F
+
+
+[:arrow_left: Back to project home](https://github.com/FyoAtEPL/VerticalFiles "Back to project home")
+
+[:a: Back to family files index](https://github.com/FyoAtEPL/VerticalFiles/blob/main/FamilyNameIndex.md "Back to family files index")
+
+- Fackler
+- Fair
+- Fairchild
+- Fairfield
+- Fales
+- Falka
+- Falka, Martha
+- Farley, James I.
+- Farlow
+- Farnsworth, Philo T.
+- Farrington
+- Farris-Luse
+- Farver
+- Faulkner
+- Fausett
+- Feagler
+- Fee
+- Feick, Fred L.
+- Feller
+- Ferguson
+- Ferris
+- Ferry
+- Fetters
+- Fiandt
+- Fields
+- Fifer
+- Fike
+- Finch
+- Finney
+- Fischer
+- Fish
+- Fisher
+- Fisk
+- Fitch
+- Fitzgerald
+- Fitzsimmons
+- Flint
+- Fluke
+- Fogle
+- Fogt
+- Foley
+- Foley, John L.
+- Folmar
+- Foltz
+- Foote
+- Ford
+- Ford, Lee Ellen #1
+- Ford, Lee Ellen #2
+- Fordanish
+- Foreman
+- Forgey
+- Forker
+- Forrer
+- Forrest
+- Forslund
+- Fosdick
+- Foster
+- Foulks
+- Fox
+- Frain
+- Fralick
+- Francis
+- Frank
+- Franklin
+- Franks
+- Franz
+- Franze
+- Franzheim
+- Frederick
+- Freds
+- Freeburn
+- Freed
+- Freels
+- Freeman
+- Freeze
+- Fretz
+- Fribley
+- Frick
+- Friedel
+- Friedt
+- Friend
+- Friller
+- Frisbie
+- Frost
+- Fry
+- Frye
+- Fuller
+- Funk
