@@ -1,0 +1,112 @@
+# Family Files - L
+
+
+[:arrow_left: Back to project home](https://github.com/FyoAtEPL/VerticalFiles "Back to project home")
+
+[:a: Back to family files index](https://github.com/FyoAtEPL/VerticalFiles/blob/main/FamilyNameIndex.md "Back to family files index")
+
+- La Rowe
+- La Rue
+- Laher
+- Laign
+- Lake
+- Lamker
+- LaMotte
+- Lamp
+- Lampe
+- Landers
+- Landes
+- Landis
+- Lane
+- Langley
+- Lantz
+- Larkins
+- Lash
+- Lash, Donald R.
+- Latson
+- Latta
+- Lautzenhiser
+- Lawson
+- Layman
+- Laymon
+- Leahman
+- Leaman
+- Leas
+- Leason
+- Leasure
+- Leatherman
+- Lee
+- Leek
+- Leeson
+- Lehman
+- Lehmbeck
+- Lehrman
+- Leichty
+- Leininger
+- Leins
+- Leisure
+- Leiter
+- Lemke
+- Lemper
+- Lemual
+- Lentz
+- Leon
+- Leonhardt
+- Lepley
+- Lepore
+- Lesch
+- Lesher
+- Lester
+- Levitz
+- Lewis
+- Ley
+- Liba / Libey
+- Liddell
+- Lieb
+- Liechty
+- Lige
+- Likens
+- Lilly
+- Lily
+- Lincoln
+- Lindoerfer / Lindorfer
+- Lingenfelter
+- Lininger
+- Link
+- Link, Henry A.
+- Linstromberg
+- Linty
+- Linvill
+- Little
+- Littlejohn
+- Livergood
+- Lochner
+- Lock
+- Lockhart
+- Lockwood
+- Loftus
+- Lombard
+- Long
+- Longardner
+- Loomis
+- Lorey
+- Losure / Lozier
+- Lothamer
+- Lott
+- Loucks
+- Loutzenhiser
+- Lowe
+- Lower
+- Lowman
+- Loy
+- Luban
+- Lucy
+- Ludwig
+- Ludwiski
+- Lugar, Richard G.
+- Lumpkins
+- Lung
+- Lutz
+- Lyon
+- Lyons
+- Lytle
