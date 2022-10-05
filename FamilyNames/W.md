@@ -1,0 +1,150 @@
+# Family Files - W
+
+
+[:arrow_left: Back to project home](https://github.com/FyoAtEPL/VerticalFiles "Back to project home")
+
+[:a: Back to family files index](https://github.com/FyoAtEPL/VerticalFiles/blob/main/FamilyNameIndex.md "Back to family files index")
+
+- Waanders
+- Wade
+- Wagner
+- Wagoner
+- Walborn
+- Waldher
+- Waldron
+- Walker
+- Walker, Madam C. J.
+- Wallace
+- Wallace, Lew
+- Wallen
+- Walsh
+- Walter
+- Walter, Mike
+- Walter, Robert J.
+- Walters
+- Wanamaker
+- Wann
+- Wappes
+- Ward
+- Warfield
+- Warkentine
+- Warner
+- Warstler
+- Wartenbe
+- Washler
+- Wasson
+- Waterman
+- Watier
+- Watson
+- Way
+- Wayne, Anthony
+- Weathers
+- Weaver
+- Webb
+- Webster
+- Wedding
+- Weed
+- Weeks
+- Wehr
+- Weibel
+- Weilert
+- Weimer
+- Weinert
+- Weirich
+- Welch
+- Weldin
+- Weller
+- Wellman
+- Wells
+- Wendel
+- Wene
+- Wengerd
+- Werkheiser
+- Werner
+- Wert
+- Wertenberger
+- Wesley
+- Wessel
+- West
+- Western
+- Westfall
+- Westrick
+- Wetzel
+- Wheeler
+- Whelan
+- Wherley
+- Wherly
+- Whetstone
+- Whitcomb
+- White
+- Whitman
+- Whitson
+- Whittig
+- Whittington
+- Wiant
+- Wible
+- Wicker
+- Widney
+- Wiegand
+- Wilcox
+- Wilcoxson
+- Wilder
+- Wildermuth
+- Wildeson
+- Wiley
+- Wilhelm
+- Wilkins
+- Wilkinson
+- Willennar
+- Willennar, Aileen
+- Willennar, William H.
+- Williams
+- Williamson
+- Willis
+- Willkie, Wendell
+- Willock
+- Wilondek
+- Wilsey
+- Wilson
+- Wiltrout
+- Wimer
+- Winans
+- Winebrenner
+- Winegardner
+- Wing
+- Wingard
+- Winkleblack
+- Winslow
+- Winterhalter
+- Wirey
+- Wise
+- Wise, Troas
+- Wiseman
+- Witherspoon
+- Witt
+- Wittmer
+- Witwer
+- Wolf
+- Wolf, Wayne
+- Wolfe
+- Wolfinger
+- Womack
+- Wood
+- Woodbury
+- Woodcock
+- Woodcox
+- Woodruff
+- Woods
+- Woodward
+- Woodworth
+- Woolever
+- Wooster
+- Working
+- Workman
+- Worman, Richard W.
+- Worsham
+- Wren
+- Wright
+- Wyatt
+- Wyckoff
+- Wyss
